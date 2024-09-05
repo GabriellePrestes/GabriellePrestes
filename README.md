@@ -8,7 +8,9 @@
 - 📫 How to reach me ...
 - Meu telefone é (45)999422496 E caso não consiga pelo celular, meu e-mail é gabrielleprestes20@gmail.com
 - 😄 Pronouns: ...
+- Divertida, Engraçada, Feliz.
 - ⚡ Fun fact: ...
+- Sou canhota.
 
 <!---
 GabriellePrestes/GabriellePrestes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
